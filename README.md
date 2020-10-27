@@ -1,1 +1,1 @@
-Jeg har tænkt mig at lave et eller andet, ved bare ikke lige hvad endnu
+Jeg har tænkt mig at lave kryds og bolle.
